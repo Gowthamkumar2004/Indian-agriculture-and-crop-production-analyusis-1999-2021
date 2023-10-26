@@ -8,4 +8,4 @@ Story
 https://public.tableau.com/app/profile/gowtham.kp/viz/shared/J2SZW6PJW
 
 Video
-https://www.youtube.com/watch?v=fLf7WSAgfIU
+https://youtu.be/dqiWvYpsc3w
